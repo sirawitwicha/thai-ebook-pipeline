@@ -1,0 +1,25 @@
+# Python
+__pycache__/
+*.pyc
+.venv/
+venv/
+
+# Output files (generated, not source)
+output/*.pdf
+
+# OS files
+.DS_Store
+Thumbs.db
+desktop.ini
+
+# Secrets
+.env
+*.env
+auth.json
+
+# Large binary files
+*.mp4
+*.mp3
+*.wav
+*.zip
+*.tar.gz
