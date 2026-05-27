@@ -1,0 +1,11 @@
+get fired. Ensure you know who will be reading the report and write it in a way that allows you plausible deniability if needed.
+**Targeted indifference**
+This occurs when one person knows that something bad is about to happen to the other, but stays quiet instead of giving a warning. It can be done out of indifference (when they don't really care what happens to the victim), or embarrassment (when they feel that providing a warning is somehow overstepping professional boundaries. But the most common occurrence is when people stay silent because they see a personal gain in the failure of the other.
+
+This is exceptionally common in the business world, particularly in large companies where projects die or are cancelled all the time. You will often hear phrases such as “none of my business” or “I was too busy with my work to help”, usually said by grinning vultures who are spreading gossip about the failure and its fallout.
+
+Targeted indifference is easy to do and difficult to detect – it simply requires you to do nothing, after all. It is thus very tempting for most people, and you will often see it as a “baby's first political shenanigan” before they move onto more complex tricks.
+**If you are being targeted**
+The biggest difficulty here is recognising that it is occurring. As mentioned, it is very hard to detect when people are silent, so you need to look for what is *not* there. In other words, where should you be seeing support, but aren't?
+- **Who is not being helpful?** Most work is done in teams, which means that in any difficult situation you should expect to get some sort of assistance from others. Look at your supposed team-members and ask if any of them seem less helpful than you would expect. Has anyone started to help, then backed off? Mentioned that there are problems (openly or cryptically) then avoided providing any useful advice, or even changed the subject completely?
+- **Are they really doing it purposefully?** It may be malice, it may be laziness – or they really may have so much to do that there is no time to advise you. Ask yourself why they might be targeting

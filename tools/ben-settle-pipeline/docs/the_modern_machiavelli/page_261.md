@@ -1,0 +1,4 @@
+# 6. Typical political shenanigans
+There are a number of typical manoeuvres that you will see in a standard office-politics environment. Sometimes they will be directed against colleagues, sometimes they will target you, and sometimes you’ll do it to other people. Regardless of the source or the target, it is important to understand what is happening and why.
+
+This chapter will look at the most common political shenanigans, the intention behind them, and how you can defend yourself against it. It has been divided into those which happen on a daily basis, those which are somewhat nastier betrayals, and those with the chance of ending your career.

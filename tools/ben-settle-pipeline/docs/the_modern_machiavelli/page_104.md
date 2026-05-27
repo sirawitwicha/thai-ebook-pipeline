@@ -1,0 +1,10 @@
+- **Options you looked at last time, but rejected:** If the problem has come up in the past, you probably (hopefully) looked at a number of different possible solutions. As circumstances change, many of these previously-rejected options may now be worthwhile or even the better option. Bring them back in and evaluate them again. This is also an excellent reason to keep a permanent record of your evaluations and eventual decisions.
+- **Options made for a similar decision in different situations:** You will often find that a similar problem has occurred in a slightly different situation, department, or environment (or even a completely different industry). The solutions for these problems can usually be reworked to fit your specific circumstances, with the added bonus that you already have an example to follow.
+
+But you cannot simply work from previous ideas, you also need to brainstorm new and potentially better alternatives. This is best done by building off the information you already have, as in the following:
+
+- **Create hybrids:** Figure out the different component pieces of your previously-identified solutions. Then mix these parts together to make a new hybrid approach.
+- **Fill gaps:** Each of your success factors can be thought of as a range of acceptable options in the middle of a long list of unacceptable outcomes. Look for two solutions which fulfil the opposite edges of this acceptable range, and try to create a mixture which fills in the gap.
+- **SWOT:** A standard technique, you need to assess the strengths, weaknesses, opportunities and threats inherent in your known solutions. Now build off that and look for approaches which enhance the positive aspects.
+
+By this point you should have come up with a number of different options, probably more than you really need. Too many options leads to bad decision making – there are so many alternatives that we cannot keep track of them, and so default to things which feel familiar even if they are not the best options.

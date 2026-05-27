@@ -1,0 +1,12 @@
+From a purely selfish point of view it is rarely good for your career to head up a failing project. Only in very risk-tolerant or adventurous companies will you be able to spin this into a success, and even then only if you have management support. Which makes it very tempting to get yourself away from the oncoming collapse.
+
+Escaping requires support from higher-level management for your planned move. Ideally you will identify a vacant or potential role early on, allowing you to request an explicit change (instead of saying “get me out of here”). Call in favours from friends, use the influence of your mentors and network – think of it as applying for a new job, but with a deadline. Your aim is to be out early enough that the project failure is not blamed on you – in practice this is around 6 months prior. Try to take trusted associates or friends with you when you go – you can usually set up roles for them in the next spot.
+
+Who will replace you (the fall guy) is a difficult question. The hands-off approach is to leave this to your ex-manager, which means they will normally pick the next-most-experienced person in the team. If you are vindictive, you can also suggest internal enemies for the role – phrase it as a ‘development opportunity’ to minimise the chance that they can refuse.
+
+**Hiding in the fine print**
+This is the act of ensuring that a vital piece of information is present in an obscure location of an important report or presentation. The information is there, so the author can happily claim that every piece of necessary data was included. But it is so hard to identify and understand that non-compulsive readers will miss it and the implications.
+
+The typical example of this is a legal contract (where something is always hiding in the fine print), but you will also see this in project proposals and other major documents. There are also many ways of doing it: the key weakness may be buried in a minor section, the executive summary may completely ignore the implications of the facts, the writing style may be deliberately obtuse to challenge understanding, the document may arrive as ‘pre-reads’ two hours before the meeting.
+
+Note that this is not always a deliberate attempt to deceive, some people are just terrible at communication. But the outcome remains the same – the

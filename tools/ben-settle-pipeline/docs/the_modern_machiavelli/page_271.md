@@ -1,0 +1,4 @@
+**If you are doing this**
+This is by necessity a time-limited approach. It can be extended with additional vague promises, usually with some sort of blame directed at higher management, cost-saving programs, or the most convenient of monsters, HR. Your targets will eventually realise that you are not capable or not willing to provide them with the promised benefits. This realisation will only happen *after* the project finishes, however, which makes it useful for boosting motivation on long-term projects.
+
+Once this point is reached, they will no longer co-operate and will often quit. This means that you should only do it to workers who are not all that competent – those who you could replace fairly easily and who would never reach the next step anyway.

@@ -1,0 +1,4 @@
+**.Become known as a decision-maker**
+Eventually, a time will come in your career when you will have to make a decision. Many people try to go their entire lives without making a job-related decision, keeping their heads down and simply watching as events pass them by, hoping not to be noticed. These people make up the majority of most corporations and can be safely considered irrelevant by anyone with serious career aspirations. You, by contrast, should get used to making decisions – because nothing boosts visibility and promotion like a reputation for making the *right* decision.
+
+Note that we say the “right decision” because failures don’t get promoted. Which means you have to think about what you are going to do *before* you do it.

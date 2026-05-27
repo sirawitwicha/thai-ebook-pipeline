@@ -1,0 +1,9 @@
+fairly and equally.
+-   **Care about your people’s problems:** A good manager is a bit like a parent – they listen to the problems, offer advice on how to succeed, smooth over difficulties and encourage people to do their best. And, like a parent, you need to genuinely care about your team. Fake interest is easily spotted, and will remove any goodwill you may have developed.
+-   **Reward success:** You should be publicly acknowledging and rewarding successes of your team members – and everyone who sees this reward should feel that it is justified. Never provide an outsized reward to a team member simply because you like them more.
+-   **Be modest:** You are pretty good at your job, but you don’t need to go on about it. And when you do screw up, make sure you accept the blame and take responsibility. Don’t dump it on your team members.
+-   **Provide a feeling of order:** Your team want to feel that you are confident and capable. They do not want to hear about your problems or the political fights you are in – they want to know that you are making the important decisions and keeping their jobs alive. Make sure you provide this feeling.
+-   **Show enthusiasm:** You should avoid showing anger, stress, anxiety and worry. But you can (and should) show enthusiasm for your team members. A little goes a long way – a lot goes even further.
+
+Explain your actions
+One of the biggest points to remember is that a team works best when they know why they are doing things. Your short term and long term plans should be openly discussed with the team (excluding secret information, naturally), as this will help them know where you are going and why you are going there. Everyone involved should have a general idea of what they are working on, when it needs to be finished, and why it is important. Teams which do not have this information will rapidly lose interest and motivation, which in turn means less chances of success.

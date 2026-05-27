@@ -1,0 +1,11 @@
+As mentioned above, you can only build a network if you are willing to be a normal, social human being. Robotic attempts to mesh with people using tips you picked up from the internet are rarely successful. Instead you need to show a genuine interest in them as a *person*, not just a source of potential gain. At the same time, you need to make it clear that you are coming into the conversation as an open partner, not a manipulator.
+
+Although it seems counterintuitive, one of the simplest ways to do this is to use your *own name*. Introduce yourself, say hi. Use their name once or twice so you remember it, then let it go. Many people have taken the old advice into their hearts (“use their name as often as possible, people like hearing their name!”) and then overused it – which means that networking events fill with repeating names (“John, I was thinking… that’s right John… no John, you mean”). Again, we have an instinctive aversion to this kind of speech, it seems fake and obviously designed to sell us something. So stand out from the pack, don’t overuse their name, and feel free to use yours.
+
+*Don’t be afraid to spend time or money*
+
+You shouldn’t be afraid to spend money on building your network. Invite people for coffee or dinner, give a little gift every so often when you catch up. The feeling that you can ‘just do’ something like this makes you seem more impressive – only a successful guy would be able to casually drop some money on a meeting, right? Not necessarily, but how it *looks* is the important thing. Not only do you gain an aura of success, but you create a feeling of obligation in others which they will then subconsciously need to repay.
+
+Money is not the only currency out there, with time being arguably even more valuable. Providing others with access to your time, particularly when it is free of distractions, is a powerful gesture – and this is even more significant when they know how exceptionally busy you are. Take time out to help others, to introduce them to meaningful contacts, to help solve their problems. Just make sure that your time is never undervalued – people who do this will rarely reciprocate.
+
+*Focus on talent*

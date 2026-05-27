@@ -1,0 +1,11 @@
+**Offer and counteroffer**
+
+Once both initial offers are on the table, it’s time to move on to bargaining. Despite a common belief that the best negotiator doesn’t move from their initial offer, a well-planned set of concessions from your initial position is often the only way to get a deal done. Having a well-researched initial offer (and casting doubt on theirs) is a good way to keep the final outcome closer to your target, but you have to accept that you cannot always get everything you ask for.
+
+Which is where bargaining comes in. Many people hate negotiation, they feel dirty haggling and simply want to get it over with. This is what your counterpart is looking for, as it inevitably means a better deal for them. Roll your sleeves up and get stuck into the tough and sometimes nasty offer and counteroffer – after a while you will begin to enjoy the challenge, and this will make you far more successful in your eventual outcomes.
+
+But how do you actually do this? It can be difficult to be assertive in a negotiation, particularly if you don’t have an aggressive personality at heart. There are a couple of approaches which are quite helpful in this regard, as described below. But remember that being assertive is not the same as making enemies. Your counterpart is not the enemy, the issue you are dealing with is the problem.
+
+- Get strategically irritated: Anger makes us do stupid things, but controlled, visible anger is a powerful indicator to your counterpart that you are not happy with their proposal. If you have a bad offer, a really irritating one, then allow a little bit of this irritation to come through in your voice as you say “I cannot see how that would ever work.” Your counterpart will often back off on the point, often sub-consciously.
+- Be icily controlled: If your negotiating style so far has been open and friendly, then a sudden switch to a controlled, poised, and *confident* tone of voice is also a clear sign for your counterpart. Be calm, be confident, and say “that doesn’t work for me”.
+- Ask why: Whenever someone asks ‘why’, we automatically go on the defensive. You can use this to express your dissatisfaction

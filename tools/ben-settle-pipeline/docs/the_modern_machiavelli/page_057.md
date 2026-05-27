@@ -1,0 +1,6 @@
+**.Managing initial impressions**
+It takes only a couple of seconds to create an impression of someone we have just met. And these impressions *last* – whatever you thought in that short moment will colour your feelings and interactions for a long time to come. It can be changed, of course, but it requires continuous effort to get new, positive messages in place.
+
+Unfortunately, this is just as applicable to you as it is to others. Any negative impression you might give, that split-second decision made by others when they see you, will also last unless deliberately controlled. This means that you will need to put effort into controlling your image, particularly when you know that you will be meeting important people for the first time.
+
+The first step in this process is to accept the necessity of managing impressions. Many people think of this as being underhanded, or sneaky, or somehow untrue. This is not the case – it is merely showing the world your *best* side rather than whatever side happens to be passing by. Corporations spend millions managing their major brands because they know how important these impressions are for success. You can do the same.

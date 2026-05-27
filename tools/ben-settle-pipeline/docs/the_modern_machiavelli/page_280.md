@@ -1,0 +1,8 @@
+Once you are away from the immediate emotional threat, it's time to look at the feedback. What was really being said? How else could it be interpreted? What motive could they have for providing this feedback, and is there any significance to the timing? What happens if I just ignore them? What would be the appropriate response be, putting my feelings to the side?
+
+Your goal, essentially, is to ignore the emotions which they are trying to trigger and go on to be competently dazzling in your requirements. This not only achieves your main goal (extending your career) but also shows the malicious feedback-giver that the approach doesn't work – saving you some stress in the future.
+
+**If you are doing this**
+Malicious feedback works best when given sparingly. If you constantly provide negative feedback to someone, they will eventually realise that your comments are not in step with the comments from everyone else they know. This will lead them to distrust your opinion and (eventually) to simply disregard it – something which will occur even if they do not realise that you are trying to manipulate them
+
+The counterpoint to this is that malicious feedback works extremely well when it is co-ordinated between several people. One person may be ignored as a grumpy old man, an entire group must have a point. Thus if you want to truly undermine another, find like-minded people to help you out.

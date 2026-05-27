@@ -1,0 +1,5 @@
+afterwards. This is why the end of the conversation is just as important as the beginning and the middle.
+
+At this stage you should nail down what has been decided, how it will be implemented, and who will do it. This should be documented (meeting minutes, etc.) and followed up to ensure that something has actually occurred. A nice overview to keep in mind is “who does what, and by when?”
+
+Following up on the outcome can be difficult if you don’t want to appear like a micro-manager. It’s generally better to take a softer approach such as setting regular update meetings or defining milestones which need to be met. In general, people will only feel accountable for a task if you give them the opportunity to say that they have done it – use this natural desire to show off to encourage them to do the work.

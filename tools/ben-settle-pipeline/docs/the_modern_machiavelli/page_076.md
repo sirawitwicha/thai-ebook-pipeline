@@ -1,0 +1,10 @@
+your current role protects you from being replaced. But it also stops you being promoted, and who wants to keep the same job forever?
+
+Beyond this, it's possible that you're a manager of some form. In this case there are additional expectations, mostly revolving around leadership. Here are some of the basic things you should be managing:
+
+- **Delegate:** You have a team, and you need to use their talents to succeed. You can't succeed if you insist on doing everything yourself – even if you are better at it than they are. Only by delegating effectively can you use the full talents of your team and avoid burning yourself out.
+- **Set goals:** You are a leader, your job is to lead. How do you lead? Well, there are many ways, but one of these is to set goals for your team to aim for – this directs everyone's efforts and ensures that you are pulling in the right direction.
+- **Make decisions:** There is nothing worse (or less respected) than a manager who doesn't make decisions. Stop hedging your bets, stop covering your arse with partial answers to your team's problems. Make a decision. Even if it turns out to be wrong later, you still need to make it.
+- **Communicate well:** The manager's role is that of an information exchange – they need to pass things between their team, their peers, and their own managers. Give how important this is, you should obviously be able to communicate well.
+- **Manage change:** Things change – new people start, new software comes in, the old department head is escorted out of the building, it can be anything at any time. And your people don't like change, it makes them worried. So a good manager will be able to guide people through change and uncertainty, easing their fears while preparing them for the inevitable.
+- **Run meetings:** There are always more meetings. They'll take up most of your week, and each evening you'll wonder where the day went. So you should be able to run a meeting well, and actually get some value out of the damn things.

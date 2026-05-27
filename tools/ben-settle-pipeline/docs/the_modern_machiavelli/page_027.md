@@ -1,0 +1,10 @@
+**.Political skills to develop**
+What makes a successful politician or successful leader? As with all things in life, politics is a skill, something which you can improve with practice.
+
+More precisely, it is an umbrella term for a number of different skills, each of which can be used to help your career. These skills are built to varying degrees upon four main components – namely observation, implementation, networking, and apparent sincerity. You will need to build up your skill in each of these if you want to truly shine in the world of office politics.
+- **Observation**: Office politics requires reading and interpreting the signals given off by people around you – what they want, where they are going, how they are doing it. If you cannot understand others, you cannot plan to influence them. If you cannot understand your organisation, you cannot determine the best way to act. And if you cannot understand yourself... then what exactly are you doing?
+- **Implementation**: Once you’ve made a plan, you need to implement it. Knowing the right people to approach, the right tactics to use, the right timing, the right attitude – all of these are vital parts of getting the plan out of your head and into the real world.
+- **Networking**: The relationships you build within and beyond your organisation are the ones you use to gather information, discover opportunities, and progress your agenda.
+- **Apparent sincerity**: Everyone prefers to deal with those who are sincere, we instinctively distrust those who seem dishonest or tricky. Your success is based on other believing that you are sincere in your actions. This doesn’t mean you actually *are* sincere, merely that you *appear* to be so.
+
+Seems easy enough, doesn’t it? These components are combined to make the various skills required for office politics, as discussed in the following sections. Later chapters in this book will show how they can be developed and utilised.

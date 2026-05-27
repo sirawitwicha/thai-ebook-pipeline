@@ -1,0 +1,6 @@
+- **Mirror their last few words:** Repeat the last few words in a questioning tone, which will implicitly ask them for more details. Try to mirror in such a way that you ask for detail on part of their request which is implicitly unreasonable or badly-thought-out.
+- **Wait a few seconds:** As they think slightly more about what they are saying, and how this will be implemented in reality.
+- **Ask for help with implementation:** Calmly reply: “I’d love to help, but how am I supposed to do that?” Use this moment to point out any challenges in implementation.
+- **Repeat:** One round is never enough to kill a stupid idea. But if you keep asking for assistance in a respectful tone, then they will eventually realise the problem on their own.
+
+This works in several ways. First, it *sounds* like you are interested in their project, thus you avoid the nasty argument which occurs when you tell them how stupid their idea is. Secondly it forces attention onto the problems which you need to solve – this not only makes your problems *their* problems, but will draw attention to *why* the problems exist. In other words, it gets them onto your side of the discussion, often without even realising it.

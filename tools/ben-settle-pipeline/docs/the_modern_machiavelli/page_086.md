@@ -1,0 +1,6 @@
+- things (racial slurs, jokes, insults) and not doing the subtle things (e.g. insinuating that a promotion only came to fill a quota).
+- **Being sexist:** Don't change your treatment based on the others' gender, don't bias promotions in favour of one or another gender, don't make comments about women staying at home in the kitchen.
+- **Harassing others:** Whether it's bullying or intimidation, pressuring other employees or even just viciously micromanaging another, harassment is a bad idea and will come back to bite you at some stage.
+- **Behaving inappropriately:** You're a professional, act like one. Don't swear, don't make inappropriate jokes, dress well, wash yourself, and shave that damn neckbeard. Think about the other employees, and what they'd expect from you.
+
+All of these are blatant career killers, particularly in a modern office environment. Although you can (very often) get away with this for a long time, it will eventually come back to haunt you. Particularly as they make very convenient political weapons for your enemies. Save yourself the trouble and watch your behaviour today.

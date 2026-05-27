@@ -1,0 +1,11 @@
+accept. Best-case is what you could hope for, but keep in mind that the real outcome may be even better than you expected. Be flexible, particularly when it comes to winning!
+
+The number you take into the negotiation, at the front of your mind, should be your *best-case* option. Try not to spend too much time worrying about your bottom line, and do not highlight this number in any notes you bring into the negotiation. This is a minor psychological trick which causes you to focus on that number during stressful situations (i.e. negotiations). Rather than focusing on a lower number (the bottom line) you force your attention onto a higher one and anything less than that seems like a loss. We hate losing, so this has a knock-on effect on your overall success rate.
+
+**Bottom line**
+The bottom line is the worst possible option which you would accept in a negotiation – it’s not a successful deal, or a good one, but it’s an *acceptable* deal. Identifying this point is essential for determining your negotiation strategy, and keeping it clear in your mind will prevent you from jumping at a bad deal in the heat of negotiation.
+
+This is not to say that the bottom line is an inflexible barrier. Sometimes you may have an unreasonable number in your head, one which simply won’t fly in the real world. You may need to adjust it as other factors and currencies enter the negotiation, particularly if you think you can get more valuable concessions from the other side. Telling yourself that your bottom line is unchangeable robs you of the flexibility which you might need to find the best outcome for you. Think of it as a (firm) guideline for your negotiation, not a rule.
+
+**Walk-away option**
+Sometimes negotiations simply don’t work out, and you have to walk away. The walk-away option, or BATNA (Best Alternative to a Negotiated Agreement) is what you will do instead of going on with the negotiation. You accept that there won’t be an agreement, and so decide to go elsewhere. Perhaps you look for support from another manager, you scrounge budget savings from somewhere else, you fire half the team. Whatever it is, it’s not a negotiation.

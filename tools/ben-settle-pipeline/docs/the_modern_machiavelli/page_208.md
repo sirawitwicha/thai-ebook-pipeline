@@ -1,0 +1,3 @@
+before you begin making requests.
+- **Not being clear:** If you need something, then you need to be clear about what you need. Giving vague hints and suggestions generally leads to help which is imprecise or completely misguided. Particularly in cases where your goal is actually related to the business, clear requests are the way to go.
+- **Not emphasising your work:** If you get everything done quickly and without comment, people won’t be impressed. If you clearly state how much extra time and frustration the favour cost you, then they start to realise that you are doing them a favour. Never simply say “no problem” to a request, always break down the work and describe what is necessary, and *then* say it can be done.

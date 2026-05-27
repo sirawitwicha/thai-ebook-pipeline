@@ -1,0 +1,12 @@
+match workplace reputation, and offers hints on fine-tuning external appearance towards professionalism.
+- Chapter 6 is about creating and maintaining a **competent reputation**. We look at baseline expectations, moving beyond these, and the surprising benefits you have from being good at meetings.
+- Chapter 7 involves the art of making and selling **good decisions**, an essential skill for those who wish to progress upwards in the company
+- Chapter 8 is focused on the **fundamentals of communication** and their impact on office politics – from basic skills and selling ideas through to dealing with or using ‘no’ and holding tough conversations with others.
+- Chapter 9 is about **managing upwards** – to your manager and above. It includes typical manager requirements, dealing with new managers, and a short guide to detecting managerial insanity.
+- Chapter 10 is all about **managing downwards** – developing a leadership personality, making the most of your team, taking over a new team, and moving unwanted people on.
+- Chapter 11 looks at **networks**. It covers creating, maintaining, and tracking networks for professional development.
+- Chapter 12 is about **influencing others**, whether it be picking targets, identifying tradeable currencies, using a suitable strategy, or simply noting typical mistakes newcomers make.
+- Chapter 13 looks at **negotiation**. The approach outlined here is as applicable to formal negotiations as it is for quick back-and-forth discussions over a conspiratorial cup of coffee.
+- Chapter 14 is for when **things are going wrong**. It examines last-ditch methods for achieving success as well as effective approaches to cover your arse when they inevitably fail.
+- Chapter 15 is all about **moving on**. It covers the decision to move onwards, the art of negotiation for your new role, and a set of tell-tale signs that firings and lay-offs are coming in.
+- Finally Chapter 16 provides a summary of **typical political shenanigans** which you will encounter and (most likely) try to

@@ -1,0 +1,12 @@
+**Trading back and forth**
+
+One of the challenges of influencing is that there are many, many different things which you *could* offer, but only a small subset which your counterpart will be interested in. This gets even more complicated when you need to determine the *value* of your offering. Is a helpful word in the bosses' ear worth getting information on the new contract? How many favours on IT support do you get for wrangling the group an additional FTE? Given there is no easy conversion to cash, everything becomes a matter of personal belief and interest.
+
+So how do you know what to trade? The first rule – *their* values are more important than *your* values. You may be in possession of the world's greatest model train paint collection, but this is useless if they have no interest in trains, modelling, or paint. You need to determine what is important to your counterpart *before* you look into what you can offer.
+
+Some things are fairly universal desires (to have influence, to receive praise or credit, fair treatment, and a good reputation) yet even here the relative weighting of each can vary significantly from person to person. You will need to analyse their interests and needs to identify the right currency to offer. Look at their job requirements, their current problems, and the things they talk about or seem to value. What are their KPIs, and how are they rewarded for exceeding these? Most of the time you will need to make inferences and guesses, though some people will tell you outright if you ask directly.
+
+This is made harder by organisational politics. Companies generally frown on employees who bargain purely for their own interests, instead requiring any request to be placed in terms of ‘benefit to the company’. Watch out for overly-polite or reserved companies – although the political fighting is just as nasty, all of the *requests* will be hidden behind several layers of camouflage. Learning to decipher these is vital for understanding what others need.
+
+One way of estimating this is by looking at the position which the other person holds, and evaluating it based on several factors:
+- **Main interaction**: Are they predominantly dealing with people or things? People managers have specialised requirements and

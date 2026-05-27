@@ -1,0 +1,2 @@
+- **Target specific attributes:** If you do need to flatter someone where it is not deserved, pick an attribute which they are proud of or one which you are considered well-placed to compliment. This ensures that they are unlikely to notice or reject your praise, which gives you more room to work with.
+- **Don't overdo it:** Constant flattery is obvious to all but the most self-absorbed. Be subtle, provide a small amount of flattery on rare occasions. This makes it seem like a true compliment and gives you the image of honesty.
